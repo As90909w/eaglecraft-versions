@@ -2,5 +2,5 @@ Hellloooo!!!!!!! Now here is a full list of diffrent types of EAGLECRAFT!!! Just
 
 CREDITS
 
-Lax1dude - THANK  YOU SOOOOO MUCHHHH
+Lax1dude - THANK  YOU SOOOOO MUCHHHH                                                 
 Asnyma9188 - WOW YOURR SERVERS ARE THE BEST
